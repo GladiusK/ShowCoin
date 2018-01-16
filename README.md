@@ -1,2 +1,2 @@
 # ShowCoin
-Show: Hello World! 😀
+Show: Hello World! 😀😀😀😀😀😀😀😀
